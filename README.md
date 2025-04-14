@@ -1,0 +1,2 @@
+# smartbridgeeeeeee
+assignment of smartBridge
